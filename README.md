@@ -1,1 +1,0 @@
-# comp-med-lit
